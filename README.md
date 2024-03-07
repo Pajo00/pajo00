@@ -6,7 +6,7 @@
  
 Feel free to connect and let's explore the fascinating world of data together!
 
-You can reach out for collaborations, discussions, or just to say hello. 📧 [akinspajo@gmail.com]  & LinkedIn [https://www.linkedin.com/in/joshua-akintayo-0ab3551a7/]
+You can reach out for collaborations, discussions, or just to say hello. 📧 [joshuaakintayo21@gmail.com]  & LinkedIn [https://www.linkedin.com/in/joshua-akintayo-0ab3551a7/]
 
 Looking forward to the endless possibilities that data analysis offers! 🚀
 
